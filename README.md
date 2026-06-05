@@ -1,0 +1,1 @@
+# suniy-intelekt-mustaqil-ish
